@@ -1,0 +1,2 @@
+# 10-Coolers-That-Won-t-Make-You-Overdose-on-Sugar
+Here is Healthy drink recipes that makes your summer days Cooler. Cool off this summer with these 10 Drinks recipe with delicious taste Healthy fruits, you can make and enjoy with your kids and family. Drinks like Fruit Infusions, Iced Jasmine Green Tea, Cucumber and Lime, Litchi Melon Fizz, Melon Coconut Tango, Citrus Ginger Mimosa, Virgin Bloody Mary, Peach Mojito, Mango Planter’s Punch, and Plum Passion. These recipes for drinks are Hilarious in taste which will make your summer day cool and best day.
